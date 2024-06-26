@@ -3,7 +3,9 @@
 
 Onde assistir Geórgia x Portugal hoje (26) ao vivo: Saiba onde acompanhar, escalações e horário
 
- 
+ <b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/UEFA-Euro">➤►🌍📺📱👉CLICK HERE TO GO LIVE</a></b>
+
+ <b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/UEFA-Euro">➤►🌍📺📱👉CLICK HERE TO GO LIVE</a></b>
 
 Sonhando com a classificação para a próxima fase em sua Euro de estreia, a Seleção da Geórgia promete surpreender o forte adversário para vencer o duelo, confirmando sua vaga nas oitavas.
 
